@@ -10,4 +10,4 @@ Utilizo em aula a plataforma [Alura](https://www.alura.com.br)
 
 @luis.leite28@escola.pr.gov.br
 
-![](https://tenor.com/pt-BR/view/bolsonaro-gif-26755869)
+![](https://media1.tenor.com/m/gslLvdFGQDoAAAAC/bolsonaro.gif)
